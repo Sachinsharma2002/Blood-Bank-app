@@ -77,4 +77,4 @@ Follow these instructions to get the Blood Bank App up and running on your local
 
 ## Contact
 
-For any inquiries or support, please contact me at bhardwajdeepak0052@gmail.com
+For any inquiries or support, please contact me at sachinsharma26052002@gmail.com
